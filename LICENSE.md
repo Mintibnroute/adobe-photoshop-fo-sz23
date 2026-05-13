@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS plugin with Adobe Photoshop for macOS rare Plugin: content-aware fill & AI-assisted design. Featuring content-aware fill and AI-assisted
 
 
 
